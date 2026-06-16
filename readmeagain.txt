@@ -1,0 +1,1 @@
+z io metto la stecca al centro della z scrivendo in stampatello maiuscolo 0  https://www.perplexity.ai/search/3dea6c9c-1062-4d9b-a28c-eaa16560f730 
