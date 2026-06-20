@@ -1,0 +1,1 @@
+abs(fact(8.4))π = qubit
